@@ -57,3 +57,9 @@ And if you are lucky enough - which I was! - you get to have a chat with the gui
 He'll then change the tone and surround himself with an air of mystery and secrecy as he tells you about the yet-to-be-found room in the top of the Rock that very few people know about, in which a single soldier was stuck for years with nothing but a radio and food provisions, whose sole purpose was to let headquarters know in case the enemy secretly took over the base.
 
 And then he'll move on to a different topic and start ranting about the time the border was closed, and he will give you plenty of material to write about while he makes you feel ashamed of being Spanish.
+
+# Side thread 2
+
+This one's my personal favourite. The head of the cleaning services at my workplace goes by the name of Flor. We recently celebrated her 85th birthday. She doesn't plan to retire, that'd be too boring. She used to go on a cruise every year before the pandemic. And she tells the most amazing stories.
+
+She was evacuated along with her family to London. 
