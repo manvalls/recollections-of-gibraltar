@@ -45,3 +45,15 @@ It's no wonder why the Gibraltarians resent the Spanish after going through all 
 And nonetheless "getting Gibraltar back" is one of Spain's favourite topics of political discussion. Well, one thing I can tell you: no Gibraltarian will ever agree to be sided with those who put their parents through such hardships, and if you ask me, Spanish authorities should just do two things: apologize and leave them alone[^1].
 
 [^1]: No pun intended. Don't you dare isolate them again.
+
+# Side thread 1
+
+At the base of the Rock there's a straight tunnel that goes from one side to the other. You can glance at the entrance and you'll see the sunlight at the other end. It branches off into several other sub-tunnels. These were previously used by the Gibraltarian government, but have since been offered to a private company which uses them to run a data center.
+
+But the data center is not the only thing that these tunnels hold, and the company that runs it offers a very interesting tour through them. Unfortunately you are not allowed to see the data center itself, but instead you can visit Eisenhower's Office - yep, the former US president was here! -, along with a nearby war room with a very impressive map of Gibraltar and the Rock.
+
+And if you are lucky enough - which I was! - you get to have a chat with the guide. And he'll tell you about how kids were allowed to freely roam through the Rock and explore their tunnels back when the border was closed.
+
+He'll then change the tone and surround himself with an air of mystery and secrecy as he tells you about the yet-to-be-found room in the top of the Rock that very few people know about, in which a single soldier was stuck for years with nothing but a radio and food provisions, whose sole purpose was to let headquarters know in case the enemy secretly took over the base.
+
+And then he'll move on to a different topic and start ranting about the time the border was closed, and he will give you plenty of material to write about while he makes you feel ashamed of being Spanish.
