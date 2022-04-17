@@ -18,7 +18,7 @@ Gibraltar would remain Arab until 1462, when the Christians captured it, totalin
 
 ## Modern age
 
-The Spanish population of Gibraltar fled the city. The majority of it gathered around the nearby hermitage of San Roque, founding a city by the same name which, to this day, keeps its original motto, as depicted by a huge sign at his entrance: "City of San Roque, where that of Gibraltar resides".
+The Spanish population of Gibraltar fled the city. The majority of it gathered around the nearby hermitage of San Roque, founding a city by the same name which, to this day, keeps its original motto, as depicted by a huge sign at its entrance: "City of San Roque, where that of Gibraltar resides".
 
 The remainder of Gibraltar's Spanish population settled around the destroyed city of Algeciras and started rebuilding it. The Spanish start calling its bay the Bay of Algeciras, and they still do, even though the rest of the world calls it the Bay of Gibraltar.
 
@@ -30,7 +30,7 @@ Fast forward ~100 years. WW2 starts. The Spanish dictatorship being in friendly 
 
 Luckily Spain remained neutral throughout the war and conflict never arose. Nowadays WW2 facilities are famous tourist attractions at both sides, with bunkers scattered across La Linea and the Rock being hollowed by more than 50 kilometers of war tunnels.
 
-After the war, civilians returned to both cities. 20 years later, Spanish dictator proposes the return of Gibraltar to Spain. Gibraltarians vote against it in the 1967 referendum. As a response, Spain completely closes the border with Gibraltar.
+After the war, civilians returned to both cities. 20 years later, the Spanish dictator proposes the return of Gibraltar to Spain. Gibraltarians vote against it in the 1967 referendum. As a response, Spain completely closes the border with Gibraltar.
 
 It would remain fully closed until 1982. Pause to think about this for a second. That's just 40 years ago. Every Gibraltarian in their 50s and above lived through this. And their children have been told stories about it.
 
@@ -62,4 +62,8 @@ And then he'll move on to a different topic and start ranting about the time the
 
 This one's my personal favourite. The head of the cleaning services at my workplace goes by the name of Flor. We recently celebrated her 85th birthday. She doesn't plan to retire, that'd be too boring. She used to go on a cruise every year before the pandemic. And she tells the most amazing stories.
 
-She was evacuated along with her family to London. 
+She was evacuated along with her family to London. "We were unlucky" she told me. "Some were sent to Jamaica, some to Madeira, we got London". And London wasn't a good place to be during WW2. "At one raid everybody rushed to the shelter, my mom carrying my baby sister in her arms, and in the middle of the hustle she looked down and she was gone. We found her by the stairs when it was over".
+
+Back in Gibraltar she would cook a "calentita" on most weeks, Gibraltar's national dish, for her late husband. "It was his favourite food", she remembers. "At the beginning it was just one guy selling them in the streets. Then we all learnt the recipe."
+
+One of these days I'm going to walk into the kitchen and just ask her to tell me a story. Not sure how that'd go down, but it's worth a try. At some point she'll finally retire, and she'll take her stories with her, along with all the joy she brings to the office.
